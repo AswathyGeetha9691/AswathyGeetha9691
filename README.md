@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AswathyGeetha9691
-- 👀 I’m interested in 
+- 👀 I’m interested in Painting, Dance and Music
 - 🌱 I’m currently learning Structural engineering at Cardiff University
 - 💞️ I’m looking to collaborate on projects in strucural and geotechnical domain
 - 📫 How to reach me aswathyg9691@gmail.com
